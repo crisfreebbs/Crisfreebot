@@ -3,7 +3,7 @@
 <img src="https://telegra.ph/file/cd36d3d8ea7bf7dc5e6cb.jpg" alt="WOTCHITO" width="900"/>
 </p>
 
-Me Llamo Eder Un Gusto
+Me Llamo *CRISFREE* Un Gusto
 <br>
 Me Gustan Los Bots!/Programar🫣
 <br>
